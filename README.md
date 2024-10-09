@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlexLFGL
 - 👀 I’m interested in gaming and creating
-- 🌱 I’m currently learning Game Design & Management
+- 🌱 I’m currently studying Game Design & Management in Cologne
 - 📫 How to reach me: www.linkedin.com/in/alexander-fliegel-04a0b5291
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am 2m tall o_O
